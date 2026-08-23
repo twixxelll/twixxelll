@@ -1,3 +1,5 @@
 ## wassupp,,, wip ok
 
-still wip cuz i create this on TV ok? ok
+
+
+        https://spokeshere-twixxen.straw.page
